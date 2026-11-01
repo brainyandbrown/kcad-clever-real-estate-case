@@ -1,0 +1,1 @@
+# kcad-clever-real-estate-case
